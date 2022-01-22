@@ -1,2 +1,0 @@
-# trofimova207alina
-psets
